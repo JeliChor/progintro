@@ -1,0 +1,1 @@
+README je vytvoren
